@@ -4,6 +4,6 @@
 - 💞️ Procuro colaborar em lavar dinheiro
 - 📫 Como entrar em contato comigo 4580028922
 - 😄 Pronomes: Homem.
-- ⚡ Curiosidade se vou preso lavando dinheiro 
+- ⚡ Curiosidade: sou tchola
 
 ![](https://i.melhoresmemes.com/gifs/maquina-de-contar-dinheiro.gif)
